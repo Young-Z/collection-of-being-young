@@ -100,7 +100,9 @@ old feedback to appreciate someone who loves you.
 himself,
   but in a 3D space, just like what happens for a 4D hyper cube, project in 3D
 space.
+
 <img src="./resources/4d-hypercube.jpg" width="350">
+
 2.Transcendental numbers, I think irrational attribute of these numbers makes
 one of finest creation by God. Why?
 
