@@ -4,32 +4,45 @@
 
 1.Natural does not fail me on the any corner of the world, but sometimes
 humanity does. So do I.
+
 2.Desire is the direction, planning is the magnitude. it's the vector for
 victory.
+
 3.It's stopping me being great, not my abilities, but my greeds.
+
 4."way to influence" is soul.
+
 5.“Good Sense” puts you in the right direction, "Learning" refines your path,
 "Practice" takes you to your destination.
+
 6.There are so many aspects within me. What a shame that you did not pick up the
 one can fancy you.
+
 7.Sometimes I could not be myself, because I forget, not how poor I was, but how
 amazing I will be and the great "Who I am".
+
 8.Words are cheap, but sometimes you can find proverbs in them, just like you
 may find diamonds in sands. Make up your filter, be wise be open, be ready to
 get your treasure.
+
 9.Words last seconds are wastes, words last minutes are advises, words last
 years are spirits, words last centuries are maxims, words last forever are from
 God.
+
 10.We can sense perfect by only two ways, ones from God, ones with our
 compassion.
+
 11.Sweet words do not mean to be efficient tool to attract someone, it's a plain
 old feedback to appreciate someone who loves you.
 
 
 ---
 1.$\pi$虽精准却无以量，施之以度乃得一量，用之以理是正道。
+
 2.我总希望别人能对我大度一点。最后宽了别人的心，我还是“我”。
+
 3.我本以为520是个一个疑问句，但我却如此自然地说成了陈述句。
+
 4.我是一个非常懒的人，如果没有梦想，我估计已经躺在棺材里了吧。
 
 
