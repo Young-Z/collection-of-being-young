@@ -8,7 +8,7 @@ humanity does. So do I.
 2.Desire is the direction, planning is the magnitude. it's the vector for
 victory.
 
-3.It's stopping me being great, not my abilities, but my greeds.
+3.It's stopping me being great, not my abilities, but my greedy.
 
 4."way to influence" is soul.
 
@@ -115,6 +115,9 @@ to beautify our life.
     3.Authority Control. Since it is infinite to us. we would never be as good
 as God. we can only have approximate of these numbers that good enough to serve
 our life, but never get the exect value to rule the creation over God's control.
+
+
+notedown collection-of-being-young.ipynb --to markdown > README.md
 
 
 ```{.python .input}
